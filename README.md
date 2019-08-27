@@ -20,7 +20,7 @@ Un **gran poder** requiere _una_ gran *responsabilidad*
 * sub item
 
 
-![batman](http://gruporivas.com.mx/wp-content/uploads/2016/04/NEfigMCRB6Tmio_2_b-600x270.jpg)
+>![batman](http://gruporivas.com.mx/wp-content/uploads/2016/04/NEfigMCRB6Tmio_2_b-600x270.jpg)
 
 [ir a imagen](http://gruporivas.com.mx/wp-content/uploads/2016/04/NEfigMCRB6Tmio_2_b-600x270.jpg)
 
